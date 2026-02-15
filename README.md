@@ -1,0 +1,1 @@
+# paint-calculator-privacy-policy
